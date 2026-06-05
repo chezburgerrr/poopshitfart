@@ -13,7 +13,7 @@
 
 ``i love videogames, anime , music etc.``
 
-``im multifandom, but the main fandoms that im in are: Devil May Cry (current hyperfixation lol) , Resident Evil, Overwatch 2, JJK , MHA,   Nana, and more!``
+``im multifandom, but the main fandoms that im in are: Devil May Cry (current hyperfixation lol) , Resident Evil, Overwatch, JJK , MHA,   Nana, and more!``
 
 ``my main fav characters are V and Tomura Shigaraki!`` 
 
