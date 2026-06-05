@@ -13,18 +13,19 @@ INFP ♡ˎˊ˗
 
 i love videogames, anime , music etc.
 
-im multifandom, but the main fandoms that im in are: Devil May Cry (current hyperfixation lol) , Resident Evil, Overwatch 2, JJK , MHA, and Nana!
+im multifandom, but the main fandoms that im in are: Devil May Cry (current hyperfixation lol) , Resident Evil, Overwatch 2, JJK , MHA, Nana, and more!
 
 my main fav characters are V and Tomura Shigaraki! ⋆˙⟡
 
+──── ୨୧ ────
 
-꧁⎝ 𓆩༺✧༻𓆪 ⎠꧂
-
-
-i have a basic dni list, just dont be disrespectful and weird.
+i have a basic dni list, just dont be weird.
 
 im not that social , but i still love making new friends! ── .✦
 
-im currently very busy studying for my senior national exams, so expect me to be barely online on any socials.
+im currently very busy studying for my senior national exams, so expect me to be barely online on any socials. wish me luck!!
 
-<img width="736" height="1030" alt="v3" src="https://github.com/user-attachments/assets/b56d6623-6d22-4f11-92f9-faf588a35646" />
+──── ୨୧ ────
+
+<img width="1200" height="675" alt="v" src="https://github.com/user-attachments/assets/dedf2d76-58e0-441b-bfeb-85bf3c138635" />
+
