@@ -3,21 +3,27 @@
 
 greetings!
 
+──── ୨୧ ────
+
 my name is sawen!
 
-im 18 years old and Kurdish!
+im 18 years old and Kurdish! 
 
-INFP 
+INFP ♡ˎˊ˗ 
 
 i love videogames, anime , music etc.
 
 im multifandom, but the main fandoms that im in are: Devil May Cry (current hyperfixation lol) , Resident Evil, Overwatch 2, JJK , MHA, and Nana!
 
-my main fav characters are V and Tomura Shigaraki!
+my main fav characters are V and Tomura Shigaraki! ⋆˙⟡
+
+
+꧁⎝ 𓆩༺✧༻𓆪 ⎠꧂
+
 
 i have a basic dni list, just dont be disrespectful and weird.
 
-im not that social , but i still love making new friends!
+im not that social , but i still love making new friends! ── .✦
 
 im currently very busy studying for my senior national exams, so expect me to be barely online on any socials.
 
