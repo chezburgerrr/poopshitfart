@@ -19,7 +19,7 @@
 
 ──── ୨୧ ────
                                                     
-``i have a basic dni list, just dont be weird.`` 
+``i have a basic dni list, just dont be disgusting and mean.`` 
                                       
 ``im not that social , but i still love making new friends!`` 
 
