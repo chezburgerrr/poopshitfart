@@ -23,7 +23,9 @@ i have a basic dni list, just dont be weird.
 
 im not that social , but i still love making new friends! ── .✦
 
-im currently very busy studying for my senior national exams, so expect me to be barely online on any socials. wish me luck!!
+im currently very busy studying for my senior national exams, so expect me to be barely online on any socials. 
+
+wish me luck!!
 
 ──── ୨୧ ────
 
