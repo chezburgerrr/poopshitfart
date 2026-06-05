@@ -5,7 +5,7 @@
 
 ──── ୨୧ ────
 
- ``my name is sawen!``
+ ``my name is Sawen!``
 
 ``im 18 years old and Kurdish! ``
 
