@@ -1,1 +1,24 @@
-# poopshitfart
+<img width="1200" height="675" alt="v" src="https://github.com/user-attachments/assets/f19ef09a-83f7-44a3-b2c1-414657b5f4b5" />
+
+
+greetings!
+
+my name is sawen!
+
+im 18 years old and Kurdish!
+
+INFP 
+
+i love videogames, anime , music etc.
+
+im multifandom, but the main fandoms that im in are: Devil May Cry (current hyperfixation lol) , Resident Evil, Overwatch 2, JJK , MHA, and Nana!
+
+my main fav characters are V and Tomura Shigaraki!
+
+i have a basic dni list, just dont be disrespectful and weird.
+
+im not that social , but i still love making new friends!
+
+im currently very busy studying for my senior national exams, so expect me to be barely online on any socials.
+
+<img width="736" height="1030" alt="v3" src="https://github.com/user-attachments/assets/b56d6623-6d22-4f11-92f9-faf588a35646" />
