@@ -15,7 +15,7 @@
 
 ``im multifandom, but the main fandoms that im in are: Devil May Cry (current hyperfixation lol) , Resident Evil, Overwatch, JJK , MHA,   Nana, and more!``
 
-``my main fav characters are V and Tomura Shigaraki!`` 
+``my main fav characters are V , Tomura Shigaraki , and Ana Amari!`` 
 
 ──── ୨୧ ────
                                                     
