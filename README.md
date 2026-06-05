@@ -31,7 +31,8 @@
 
 ``(づ> v <)づ♡ ``
 
-<img width="1200" height="675" alt="v" src="https://github.com/user-attachments/assets/dedf2d76-58e0-441b-bfeb-85bf3c138635" />
+<img width="1200" height="675" alt="heyyy" src="https://github.com/user-attachments/assets/4e6e956a-2b9f-4664-a429-434516f7e27b" />
+
 
 
 <img width="200" height="200" alt="panchiko" src="https://github.com/user-attachments/assets/d3163ce3-566f-4c26-be73-de5fd28b7ae9" />
