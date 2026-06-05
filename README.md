@@ -23,6 +23,8 @@
                                       
 ``𝙞𝙢 𝙖𝙢𝙗𝙞𝙫𝙚𝙧𝙩𝙚𝙙 , 𝙖𝙣𝙙 𝙞 𝙡𝙤𝙫𝙚 𝙢𝙖𝙠𝙞𝙣𝙜 𝙣𝙚𝙬 𝙛𝙧𝙞𝙚𝙣𝙙𝙨 !`` 
 
+``𝙘+𝙝 𝙬𝙚𝙡𝙘𝙤𝙢𝙚𝙙 𝙖𝙣𝙙 𝙝𝙞𝙜𝙝𝙡𝙮 𝙚𝙣𝙘𝙤𝙪𝙧𝙖𝙜𝙚𝙙 𝙖𝙩 𝙖𝙡𝙡 𝙩𝙞𝙢𝙚𝙨!``
+
 ──── ୨୧ ────
 
 ``im currently very busy studying for my senior national exams, so expect me to be barely online on any socials.`` 
