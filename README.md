@@ -27,7 +27,7 @@
 
 ──── ୨୧ ────
 
-``im currently very busy studying for my senior national exams, so expect me to be barely online on any socials.`` 
+``im currently very busy studying for my senior national exams, so expect me to be barely online / not online at all on any socials.`` 
 
 ``wish me luck!!``
 
